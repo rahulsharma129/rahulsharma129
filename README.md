@@ -21,4 +21,6 @@ just call me
 7678458799
 rahulakash123456@gmail.com
 LinkedIn 
-twitter 
+twitte
+
+r 
